@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket addon with smart Polymarket Addon | trailing-stops + volume-analysis. Featuring trailing-stops and volume-analysis, it's the best choice for automated
 
 
 
